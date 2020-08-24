@@ -34,7 +34,7 @@ If I do need you urgently I will ping you using Slack/WhatsApp but this should o
 
 ### My schedule
 
-Normally you can find me in the office, however I will sometimes work from home especially if my son 👦 is sick, additionally I leave work early on Wednesday and Friday to work from home for the last 2 hours of the day.
+Normally you can find me in the office, however I will sometimes work from home especially if my son 👦 is sick, additionally I leave work early on Wednesday and Thursday to work from home for the last 2 hours of the day.
 
 During the work day you should always **be able to reach me on Slack**.
 
